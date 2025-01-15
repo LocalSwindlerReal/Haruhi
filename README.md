@@ -1,0 +1,1 @@
+Haruhi as ASCII art
